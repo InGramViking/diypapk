@@ -29,3 +29,4 @@ DIYP一代（简洁播放器）：https://diyp.lanzoub.com/ikFJ2kif0le
 
 
 
+超级密码:  2020520
